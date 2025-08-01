@@ -25,7 +25,3 @@ I'm always open to new opportunities and collaborations. Feel free to reach out 
 ---
 
 *Thanks for visiting my profile!*
-
----
-
-*Thanks for visiting my profile!*
